@@ -1,1 +1,6 @@
 
+Prompt 1:
+A young girl wearing a poncho, with large ponytails off the sides of her head, and a relatively large flower protruding from the center of the top of her head, illustrating her in a windy, magical forest, focusing on the girl as a central element, watercolor-like with soft edges and pastel colors, expressing curiosity through body language, lush foliage, glowing flowers, and tall trees, designing the poncho with practical pockets, inspired by Andean culture including traditional patterns, experimenting with different poncho patterns, studying traditional ponchos and weaving techniques, annotated sketches detailing the character.
+
+Prompt 2:
+A young girl with brown skin, wearing a poncho, with large ponytails off the sides of her head, and a relatively large flower protruding from the center of the top of her head, illustrating her in a windy, magical forest, focusing on the girl as a central element, watercolor-like with soft edges and pastel colors, expressing curiosity through body language, lush foliage, glowing flowers, and tall trees, designing the poncho with practical pockets, inspired by Andean culture including traditional patterns, experimenting with different poncho patterns, studying traditional ponchos and weaving techniques, annotated sketches detailing the character.
